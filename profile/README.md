@@ -1,2 +1,2 @@
 # la vie est belle!
-team of unprofessional individuals' 48th defenitely-not-gonna-fail idea
+48th defenitely not gonna fail project from our unprofessional individuals
