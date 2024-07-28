@@ -1,0 +1,1 @@
+This lavie-est-belle/.github repository contains information about the websites, badges, information about our staff etc.
